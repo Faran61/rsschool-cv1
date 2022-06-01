@@ -1,6 +1,6 @@
 # Farangiz Khojimatova
 
-![Farangiz](/img/fara.JPG)
+![Farangiz](img/fara.jpg)
 
 ## Contacts
 
