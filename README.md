@@ -1,1 +1,1 @@
-[](https://faran61.github.io/rsschool-cv/)
+[ht](https://faran61.github.io/rsschool-cv/)
